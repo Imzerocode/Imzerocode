@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Alejandro Toledo
-- 📫 imzerocode@gmail.com
+- 📫 zeero0x01@gmail.com
 
 
